@@ -24,7 +24,6 @@
 
 ### Otras cosas 
 * Estar con mi famila
-* Tomar mate 
 * Juantarme con mis amigos
 * Jugar a las cartas
 * Jugar con mis perros
